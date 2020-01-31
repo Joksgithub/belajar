@@ -1,0 +1,1 @@
+Belajar dan masa depan
